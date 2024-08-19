@@ -1,0 +1,1 @@
+# DividirEConquistar-PesquisaDeMercado
